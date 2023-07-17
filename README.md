@@ -1,1 +1,1 @@
-# EdFolio
+# Edward's Folio
